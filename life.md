@@ -1,5 +1,5 @@
 YC' life
-===============
+========
 
 - ~1990 Born
 - 1990-2013 I have no idea what I'm doing
